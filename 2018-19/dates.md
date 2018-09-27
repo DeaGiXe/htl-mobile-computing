@@ -69,7 +69,7 @@
 | 20. Dec. 2018  |           |
 | 27. Dec. 2018  |           | **Christmas Break (*Weihnachtsferien*)**
 | 03. Jan. 2019  |           | **Christmas Break (*Weihnachtsferien*)**
-| 10. Jan. 2019  |           | 
+| 10. Jan. 2019  |Christina L| Streaming
 | 17. Jan. 2019  |           | **Written Exam**
 | 24. Jan. 2019  |           |
 | 31. Jan. 2019  |           | **Oral Exams**
